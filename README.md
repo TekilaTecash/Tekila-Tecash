@@ -1,4 +1,4 @@
-# Hi, I'm [Tekila-Tecask]
+# Hi, I'm [Tekila-Tecash]
 
 ## About Me
 - I'm currently learning [Artificial Intelligence at Mahanahim University].
